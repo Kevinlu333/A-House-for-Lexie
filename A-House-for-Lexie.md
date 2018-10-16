@@ -194,3 +194,6 @@ How should I greet, with tears, with silence.  
 
 文/余杭苗翠花
 来源：豆瓣
+
+# 24
+角鲨烷，神经酰胺
